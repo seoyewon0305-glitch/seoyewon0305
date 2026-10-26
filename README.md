@@ -1,6 +1,12 @@
 ✨Self-Introduction✨
 - 서예원
 - 2004.03.05
+- 콘서트 공연 기획
+***
+🔧skills🔧
+- Photoshop
+- Word
+- Powerpoint
 ***
 🎶Experience🎶
 - <넷플릭스 10주년 미쳤넷, 넷플잔치> stage crew
