@@ -10,6 +10,8 @@
 - Photoshop
 - Word
 - Powerpoint
+- Premierepro
+- Aftereffects
 ***
 🎶Experience🎶
 - <넷플릭스 10주년 미쳤넷, 넷플잔치> stage crew
