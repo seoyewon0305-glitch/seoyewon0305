@@ -1,7 +1,8 @@
 ✨Self-Introduction✨
 - 서예원
 - 2004.03.05
-- 콘서트 공연 기획
+- 공연 기획 전공
+- 관심분야: 콘서트 기획, 연출
 ***
 🔧skills🔧
 - Photoshop
